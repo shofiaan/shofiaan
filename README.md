@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shofiaan
-- 👀 I’m interested in Coding, Design, Data management and cooking:)
+- 👀 I’m interested in Coding, Art, Data and Cooking:)
 - 🌱 I’m currently learning Information Technology
 - 📫 You can reach me thru instagram @shofialau
 
